@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @riduwan45
+- 👀 I’m interested in ... women
+- 🌱 I’m currently learning ...web3 infrastructure
+- 💞️ I’m looking to collaborate on ... Base developer
+- 📫 How to reach me ...email
+- 😄 Pronouns: ...He
+- ⚡ Fun fact: ...Mistar Bin
