@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @riduwan45
+- 👀 I’m interested in web3 infrastructure
+- 🌱 I’m currently learning web3
+- 💞️ I’m looking to collaborate with base
+- 📫 How to reach me: email
+- 😄 Pronouns: he
+- ⚡ Fun fact: trump
